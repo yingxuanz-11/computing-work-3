@@ -1,3 +1,4 @@
+mr ong
 he teaches elements
 though it is my element of frustration
 he never fails to be N2 :D
@@ -9,47 +10,33 @@ because all of them
 ARGON
 
 
-we are elves
-we work for the candy
-cos we want many :)
-
-
-she is santa
-she carries all the candy
-to fill our big tummies
-
-
-
+ms poh
 we are elves
 we work for the candy
 cos we want many :)
 
 
 
-
-
+mdm sim
 she's a mom
 helps with all our things
 cares for all us bings :D
 
 
 
-
+ms ng
 she teaches us about the world
 the big big world
 so big
 so much to memorise 
 
 
-
+mrs chu
 we consult
 she divulge
 mission accomplised
 
 
-his chemistry jokes 
-have no reaction
-because all of them
-ARGON
+
 
 
