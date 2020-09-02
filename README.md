@@ -17,10 +17,10 @@ cos we want many :)
 
 
 
-mdm sim
+mdm sim -
 she's a mom
 helps with all our things
-cares for all us bings :D
+cares for all us things :D
 
 
 
