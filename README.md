@@ -28,13 +28,19 @@ ms ng
 she teaches us about the world
 the big big world
 so big
-so much to memorise 
+with so much to memorise 
 
 
 mrs chu
 we consult
 she divulge
 mission accomplised
+
+ms ng
+her speedy speed
+never slowing down
+with us elves crying with tears of confusion
+what oh what can we do
 
 
 
